@@ -10,7 +10,7 @@ PARTICIPATE IN TOURNAMENTS AND COMPETITIONS
 In this real-time game, match with players from all over the world, defeat your opponent, and collect rewards! Increase your points with enjoyable tournaments added every day, earn power-ups, and become the master of the game. Play now to rank high in the leaderboard! Compete with your opponent in this multiplayer match-3 game, make smart moves, and collect surprise gold coins! Merge and explode stones with the right moves and become the king of the colorful puzzle world!
 
 COLLECT POWER-UPS
-Enter the puzzle game that is completely free and spin the magical wheel to win colorful rewards; push the limits of the match world by earning boosters that can help you pass levels! Earn dozens of stickers that you can trade with your Facebook friends if you wish! A fierce competition awaits you in Duel Match! With easy and challenging levels, the superb rewards in the online Match Duel PvP puzzle game will blow your mind. Pop more stones and earn more gold with powerful combos and boosters!
+Enter the puzzle game that is completely free and spin the magical wheel to win colorful rewards; push the limits of the match world by earning boosters that can help you pass levels! Earn dozens of stickers that you can trade with your Facebook friends if you wish! A fierce competition awaits you in Junior's Match! With easy and challenging levels, the superb rewards in the online Junior's Match PvP puzzle game will blow your mind. Pop more stones and earn more gold with powerful combos and boosters!
 
 What’s in Junior's Match:
 Match with your opponent, make the smartest moves, win, and become the master of the game.

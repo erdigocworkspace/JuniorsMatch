@@ -22,3 +22,7 @@ Pass the levels, unlock your items, discover new power-ups.
 Defeat your opponent by making the fastest and most accurate matches, time is ticking
 Determine your strategy in limited time and rank high in the league
 If you need help, you can visit our support page in the Junior's Match application.
+
+
+Contact Information:
+Email: erdigoc@gmail.com
